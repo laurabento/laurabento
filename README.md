@@ -2,6 +2,7 @@
 
 🇧🇷
 Apaixonada por tudo que envolve tecnologia e design, estudante de engenharia da computação e curiosa pelas diversas experiências que a vida nos dá. Descobri em um estágio o mundo do UX/UI e simplesmente me encontrei!
+
 🇺🇸
 Passionate about everything that involves technology and design, computer engineering student and curious about the multiple experiences that life gives us. Discovered the world of UX/UI in an internship and I just found myself!
 
