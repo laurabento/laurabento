@@ -7,7 +7,7 @@
 ### More about me
 
 - 📍 Ribeirão Pires, SP.
-- 💻 Front-end Intern at Avenue Code.
+- 💻 Front-end Junior at Avenue Code.
 - 📚 Student at Faculdade de Tecnologia Termomecanica.
 
 
